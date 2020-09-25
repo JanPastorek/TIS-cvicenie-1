@@ -15,5 +15,5 @@ Nas tim tvoria clenovia:
 1. Richard Nagy
 2. Ján Pastorek
 3. Mariia Pikuleva
-4.
+4. Jakub Zak
 
