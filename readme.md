@@ -14,6 +14,6 @@ Nas tim tvoria clenovia:
 
 1. Richard Nagy
 2.
-3.
+3. Mariia Pikuleva
 4.
 
