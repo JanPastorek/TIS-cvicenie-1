@@ -13,7 +13,7 @@ kolko kamenov mnisi prekladaju...
 Nas tim tvoria clenovia:
 
 1. Richard Nagy
-2.
+2. Ján Pastorek
 3.
 4.
 
